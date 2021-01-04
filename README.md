@@ -1,0 +1,1 @@
+# intenship---exploratory-factal-analysis-of-data-
